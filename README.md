@@ -1,4 +1,4 @@
-# 💻 👨‍💻 Graphic Designer | UI Designer | Full-Stack Web Developer  
+# 💻 👨‍💻 Graphic Designer | Full-Stack Web Developer  
 
 ## 👋 Hey there! I'm Emmanuel.  
 
